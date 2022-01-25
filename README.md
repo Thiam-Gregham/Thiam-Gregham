@@ -1,5 +1,5 @@
-- Hola! Me llamo Thiam GREGHAM
-- Graduado de la Universidad de Dalaran
-- Aprendo Maestría en Void Magia en la Hogwarts School of Witchcraft and Wizardry
-- Mi campo de investigación es 'Comparative study on the force and void magic;And the contemporary application of novel element magics'
-- Encantado de conocerte!
+- Hey guys! I am Thiam Gregham.
+- I graduated from the University of Dalaran (BMagg in Void Magic & Advanced Element Magic)
+- I am currently a PhD student of the Hogwarts School of Witchcraft and Wizardry
+- My research is mainly focused on two topics: 'Comparative study on the force and void magic;And the contemporary application of emerging element magics'
+- How to reach me: go to platform nine and three quarter and short with 'rediculous!'. If you are not a muggle, you would see me.
