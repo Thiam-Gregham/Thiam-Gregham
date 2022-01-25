@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Thiam-Gregham
 - 👀 I’m interested in magic
 - 🌱 I’m currently learning at the Hogwarts School of Witchcraft and Wizardry
-- 💞️ I’m looking to collaborate on Void Magic 
+- 💞️ My research area is 'Comparative study on the force and void magic;And the contemporary application of novel element magics'
 - 📫 How to reach me:go to Platform Nine and Three-Quarters
