@@ -2,4 +2,4 @@
 - 👀 I’m interested in magic
 - 🌱 I’m currently learning at the Hogwarts School of Witchcraft and Wizardry
 - 💞️ I’m looking to collaborate on Void Magic 
-- 📫 How to reach me Platform Nine and Three-Quarters
+- 📫 How to reach me:go to Platform Nine and Three-Quarters
