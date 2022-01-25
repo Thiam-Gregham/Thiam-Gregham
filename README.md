@@ -1,4 +1,4 @@
-- Hey guys! I am Thiam Gregham.
+- Hey guys! I am Timo Gregham.
 - I graduated from the University of Dalaran (BMagg in Void Magic & Advanced Element Magic).
 - I am currently a PhD student of the Hogwarts School of Witchcraft and Wizardry.
 - My research is mainly focused on two topics: 
